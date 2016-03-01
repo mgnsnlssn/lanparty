@@ -11,3 +11,4 @@ Find a way to stop streaming, up and down.
  - Down, for students not gaming, instead watching Youtube clips.
 
 Consider to stop the 18 year age games, or at least try to
+- By entering a paragraph on the contract saying that its the parents... 
